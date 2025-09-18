@@ -1,2 +1,2 @@
 # i want to go home 
-# go to bed to everting for sleep
+# go to bed, everyting for sleep
